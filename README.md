@@ -12,5 +12,3 @@
 
 - 📫 How to reach me **fahd.azouz13@gmail.com**
 
-
-<h3 align="center">Connect with me:</h3>
